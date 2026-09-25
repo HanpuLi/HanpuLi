@@ -6,7 +6,7 @@ London-based work across **writing, film criticism, digital publishing, photogra
 
 I am currently on the **Pre-Masters Graduate Diploma in Humanities and Social Sciences** at **Queen Mary University of London, School of the Arts**. I was awarded a **Diploma of Higher Education in English Language and Linguistics** by the **University of York** in 2024.
 
-**[Portfolio, writing and projects](https://hanpuli.github.io/)** · **[LinkedIn](https://www.linkedin.com/in/hanpu-li-124627173/)**
+**[Portfolio, writing and projects](https://hanpuli.github.io/)** · **[LinkedIn](https://www.linkedin.com/in/hanpu-li-124627173/)** · **[Academia.edu](https://independent.academia.edu/LiHanpu)**
 
 ## Selected public work
 
